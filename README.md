@@ -1,2 +1,0 @@
-# stkyaw04.github.io
-
